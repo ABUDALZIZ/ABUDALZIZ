@@ -8,4 +8,4 @@
 ABUDALZIZ/ABUDALZIZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Love you friend is love you ljust wan Very cool Positive good friends Someone who is passionate about art 
+Love you friend is Positive good friends Someone who is passionate about art Interest in the field of art and creativity
